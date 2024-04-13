@@ -6,4 +6,4 @@
 | [Industrial Ph. D. Program of National Interest in Micro - and Nano-Electronics](https://phd-mne.unipv.it/index.php?page=Call.html) | April, 2024 |I study here 😉 | Micro and Nano Electronics| University of Pavia| Fully Funded |
 | [RECONFIGURABLE ANTENNAS FOR COMPUTATIONAL MICROWAVE IMAGING](https://www.qub.ac.uk/courses/postgraduate-research/phd-opportunities/reconfigurable-antennas-for-computational-microwave-imaging.html) | April, 2024 |Linkedin - Prof. Okan Yurduseven | Antennas, Metamaterials, and Microwave imaging| Queen's University Belfast| Fully Funded |
 | [Non-linear Optics for Analog Computing](https://jobs.ethz.ch/job/view/JOPG_ethz_kYrCrXx9T9Bmz1EV9p) | April, 2024 |Linkedin - Prof. Rachel Grange | Optical Nanomaterials| ETH Zurich| Fully Funded |
-
+| [Microelectronics](https://tuni.rekrytointi.com/paikat/?o=A_RJ&jgid=3&jid=2298) | April, 2024 |Linkedin - Prof. Jari Nurmi | Microelectroncis| Tampere University, Finland| Fully Funded |
